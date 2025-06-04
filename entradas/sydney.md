@@ -14,7 +14,7 @@ Qué hacer en Sídney
 - Subir al emblemático Sydney Harbour Bridge.
 
 ## FOTO 
-https://www.viajes.cl/hs-fs/hubfs/S%C3%ADdney%20de%20noche%2C%20Australia.jpg?width=2382&name=S%C3%ADdney%20de%20noche%2C%20Australia.jpg
+![](https://www.viajes.cl/hs-fs/hubfs/S%C3%ADdney%20de%20noche%2C%20Australia.jpg?width=2382&name=S%C3%ADdney%20de%20noche%2C%20Australia.jpg)
 
 ## INFORMACION SOBRE SYDNEY
 Acerca de

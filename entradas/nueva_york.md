@@ -6,3 +6,5 @@ Nueva York , a menudo llamada la Ciudad de Nueva York ( NYC ),es la ciudad más 
 ## RECOMENDACION
 El Central Park, el Empire State Building y la Estatua de la Libertad son visitas obligadas en Nueva York.
 
+## FOTO
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRna0KRIN8_aFA890-HNTGbsj4FWn_v4eodMA&s)

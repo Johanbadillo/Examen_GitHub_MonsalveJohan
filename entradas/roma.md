@@ -19,7 +19,7 @@ Qué ver en Roma: todos los lugares imprescindibles
 - Plaza del Campidoglio.
 
 ## FOTO
-https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRnjOogCqKfj8NR7q9-rxaff4ZJ8WztPf5GufJDva17Tg&s
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRnjOogCqKfj8NR7q9-rxaff4ZJ8WztPf5GufJDva17Tg&s)
 
 
 ## INFORMACION SOBRE ROMA
