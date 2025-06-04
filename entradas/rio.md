@@ -9,3 +9,5 @@ Para un viaje seguro y placentero a Río de Janeiro, considera estos consejos: v
 ## FOTO
 ![](https://www.comparaonline.com.co/blog-statics/co/uploads/2016/09/que-hacer-en-rio-de-janeiro-1.jpg)
 
+## INFORMACION SOBRE RIO DE JANERIO
+La ciudad ocupa un área de 1182,3 km², lo que supone una densidad de población de 4781 hab/km². Río de Janeiro está asentado sobre tres grandes piedras: Piedra Blanca, Piedra de Gericinó y Piedra de la Tijuca, que son cubiertas por una bella vegetación atlántica.
