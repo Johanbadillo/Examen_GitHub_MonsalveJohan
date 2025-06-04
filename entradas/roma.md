@@ -22,7 +22,7 @@ Qué ver en Roma: todos los lugares imprescindibles
 https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRnjOogCqKfj8NR7q9-rxaff4ZJ8WztPf5GufJDva17Tg&s
 
 
-## INFORMACION
+## INFORMACION SOBRE ROMA
 
 El origen de Roma está envuelto en mitos y leyendas, pero la historia sugiere que la ciudad fue fundada gradualmente por la unión de varias aldeas latinas, sabinas y etruscas en las siete colinas a orillas del río Tíber. La leyenda más conocida, la de Rómulo y Remo, describe la fundación de la ciudad por los gemelos criados por una loba. 
 El origen de Roma:
