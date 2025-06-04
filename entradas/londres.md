@@ -10,3 +10,6 @@ Londres es la ciudad más grande de Europa y una de las más grandes del mundo, 
 - Límite diario «daily cap»: una de las mayores ventajas de viajar con la Oyster es que existe un límite de gasto diario, independientemente de las veces que uses el transporte. Este límite viene marcado por del tipo de transporte que hayas usado. Ten en cuenta que los días cuentan desde las 04:30 de la mañana, así que estarás dentro de ese límite hasta las 04:29 de la mañana del día siguiente.
 - Tarifas para niños: hay tarifas especiales para menores de 16 años en todos los transportes.
 
+## FOTO
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSOI_7LUUzh3yVNLC1oECu8TfnZOUosUrj3YA&s)
+
