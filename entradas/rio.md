@@ -6,3 +6,6 @@ Rio de Janeiro está ubicada al sureste de Brasil y es la segunda ciudad más po
 ## RECOMENDACIONES
 Para un viaje seguro y placentero a Río de Janeiro, considera estos consejos: verifica los requisitos de entrada, incluyendo la vacuna contra la fiebre amarilla y el esquema de vacunación contra COVID-19. Empaca ropa ligera, repelente de mosquitos, protector solar y un botiquín de primeros auxilios. Sé consciente de la seguridad, evita caminar solo de noche por zonas poco iluminadas y no te resistas a un asalto. 
 
+## FOTO
+![](https://www.comparaonline.com.co/blog-statics/co/uploads/2016/09/que-hacer-en-rio-de-janeiro-1.jpg)
+
